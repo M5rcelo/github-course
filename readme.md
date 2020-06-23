@@ -7,3 +7,4 @@ Mais algumas entradas para ADD;
 
 
 Gostou do curso?
+Nem tudo é rapido, mas sempre é possivel chegar...
